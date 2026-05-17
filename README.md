@@ -2,7 +2,9 @@
 
 ![hs](https://file.garden/aWda6_hwaGcNwjuj/Untitled143_20260517034534.png)
 
-<sub> 𝘒𝘪𝘴𝘴 𝘮𝘦 𝘺𝘰𝘶 𝘢𝘯𝘪𝘮𝘢𝘭 </sub>
+<sub> Life & death will always </sub>
+
+<sub> lead you into love and regret. </sub>
 </div>
 
 <!--
