@@ -2,13 +2,7 @@
 
 ![hs](https://file.garden/aWda6_hwaGcNwjuj/yuri.png)
 
-<sub> Life & death will always </sub>
 
-<sub> lead you into love and regret. </sub>
-</div>
-
-<!--
-**vilscht/vilscht** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
