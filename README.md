@@ -2,4 +2,4 @@
 
 <sub> sign my [新book](https://impure.atabook.org)</sub>
 
-<sub> kyaa  >_< </sub>
+<sub> 🚬 </sub>
