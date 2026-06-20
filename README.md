@@ -6,9 +6,9 @@
         employed. </sub>
         
 <details>
-  <summary>  。dni</summary>
+  <summary> ♡ 1. </summary>
 
 <sub>
-  under 16 -
- any kind of drama - incest </sub>
+  <br> dni : <br> under 16 -
+any kind of drama - incest </sub>
   </details>
