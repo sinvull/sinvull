@@ -6,7 +6,7 @@
         employed. </sub>
         
 <details>
-  <summary> dni</summary>
+  <summary>  。dni</summary>
 
 <sub>
   under 16 -
