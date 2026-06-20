@@ -16,5 +16,7 @@ any kind of drama - incest </sub>
 <details>
   <summary> ♡ 2. </summary>
 
-  <br> main intrests : <br> twst - adwd - vocaloid
+<sub>
+  <br> main interests : <br> 
+   twst - adwd - vocaloid </sub>
   
