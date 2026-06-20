@@ -10,7 +10,7 @@
 
 <sub>
   <br> dni : <br> under 16 -
-any kind of drama - incest </sub>
+any kind of drama (unless i get say its ok first) - incest </sub>
   </details>
 
 ![kya](https://file.garden/aWda6_hwaGcNwjuj/soleum.png)
