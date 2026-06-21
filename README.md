@@ -26,5 +26,5 @@ any kind of drama (unless i say its ok first) - incest </sub>
   <summary>  3. </summary>
 
 <sub>
-  <br> main interests : <br> twst - adwd - gsgw </sub>
+  <br> main interests : <br> twst - adwd - gsgw - kpop</sub>
   
