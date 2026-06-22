@@ -12,7 +12,7 @@
 <summary>  1. </summary>
 
 <sub>
-   iwcuf - semiactive - i can be blunt sometimes </sub>
+   iwcuf - semiactive </sub>
   </details>
   
 <details>
