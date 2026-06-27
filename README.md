@@ -15,14 +15,9 @@
    iwcuf - semiactive - multifandom </sub>
   </details>
   
-<details>
-  <summary>  2. </summary>
-<sub>
-  <br> dni : <br> under 16 - basic dni - possesive yumes</sub>
-  </details>
 
 <details>
-  <summary>  3. </summary>
+  <summary>  2. </summary>
 
 <sub>
   <br> main interests : <br> twst - csm - gsgw - kpop</sub>
