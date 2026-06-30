@@ -1,11 +1,10 @@
 <div align="center">
 
 
-<sub> please    
-    i just  want to
-      go  home. </sub>
+<sub> ma   cherie, 
+    are you  missing me? </sub>
 
-  <img src="https://file.garden/aWda6_hwaGcNwjuj/soleum.png" width="auto" align="left">
+  <img src="https://file.garden/aWda6_hwaGcNwjuj/Untitled195_20260630062632.png" width="auto" align="center">
   
 <details>
 
